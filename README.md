@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @annaKwanDesign, a 🇭🇰 Hong Kong UXUI Designer
+- 📗 Worked on 20+ projects from 0 to 1, and even some R&D POCs. 
+- 🌱 I’m currently learning AI application on daily life and design to code
+- 💞️ I’m looking to collaborate on interesting project, no matter is it small or big
+- 📫 Reach me at anna.kwan529@gmail.com
